@@ -1,1 +1,0 @@
-# danyaalb.github.io
